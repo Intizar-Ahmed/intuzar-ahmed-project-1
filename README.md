@@ -1,1 +1,1 @@
-# intuzar-ahmed-project-1
+# intizar-ahmed-project-1
